@@ -15,8 +15,14 @@ Sweet burgers and shit, love this place #squadgoals.
 Another review if two people review the same restaurant.
 
 
- HB Deli
-Good sandwich but shitty chips, dont go here unless you like getting parking tickets. #poop
+
+
+
+
+
+
+La Fogata
+Great food, awesome quac, but the ac is too damn high. #fogataLotta
 
 
 ### Next restaurant Name
