@@ -4,11 +4,9 @@
 
 Add your restaurant reviews below - all in the same file! Use a format like:
 
-### Restaurant Name
+### Subway
 
-Review goes here.
-
-Another review if two people review the same restaurant.
+A really good restaurant because it lets you mix and match your perfect sandwich.
 
 ### Next restaurant Name
 
