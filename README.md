@@ -30,7 +30,19 @@ Another review if two people review the same restaurant.
 La Fogata
 Great food, awesome quac, but the ac is too damn high. #fogataLotta
 
+<<<<<<< HEAD
 ### Lick
+=======
+
+ HB Deli
+Good sandwich but shitty chips, dont go here unless you like getting parking tickets. #poop
+
+
+### Next restaurant Name
+
+### Lick
+
+>>>>>>> ray-menu
 
 So many good licks to be had here.
 I've done a lot of licking - trust me these are good licks.
