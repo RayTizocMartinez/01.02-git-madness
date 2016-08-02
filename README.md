@@ -27,6 +27,8 @@ Sweet burgers and shit, love this place #squadgoals.
 
 Another review if two people review the same restaurant.
 
+La Fogata
+Great food, awesome quac, but the ac is too damn high. #fogataLotta
 
 ### Lick
 
