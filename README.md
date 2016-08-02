@@ -12,6 +12,10 @@ A really good restaurant because it lets you mix and match your perfect sandwich
 
 DON'T GO HERE!!! it will give you the shits, and it will BURN!! not worth 2 dollar burritos!
 
+### Dickies BBQ
+
+Great bbq, my favorite by far, but can sometimes be a bit more expensive than some of the other places lol.
+
 ### Green Cuisine
 
 Never get good service at the Alon location. Location at The Pearl is great though. WARNING: NO MEAT
