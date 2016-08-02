@@ -13,6 +13,7 @@ DON'T GO HERE!!! it will give you the shits, and it will BURN!! not worth 2 doll
 ### Dickies BBQ
 
 Great bbq, my favorite by far, but can sometimes be a bit more expensive than some of the other places lol.
+--eddie
 
 ### Green Cuisine
 
@@ -44,4 +45,4 @@ Sometimes very crowded so you sometimes have to take a licking and NOT keep on t
 ### Supper
 
 This place has laughably tiny food for huge dollars. Bar tenders were super cool. Delicious but pricey $$$.
---max 
+--max
